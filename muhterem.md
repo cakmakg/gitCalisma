@@ -1,4 +1,5 @@
 
 gunaydın
+arkadaslar
 ben muhterem
-good morning
+nasılsınız
